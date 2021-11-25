@@ -32,10 +32,10 @@ Macdonell, John. Love Poem Addressed to Miss Mary Powell. N.D. Brock Archives an
 
 May, Andrew. Letter to Erectra Morey. 10 November 1850. Brock Archives and Special Collections. May-Morey Papers, 1849-1861, 1905, 1917 RG 79
 
+McPherson, Anne.  Wedding Invitations. 1935-1975. Brock Archives and Special Collections. Anne McPherson Family Fonds, 1852-2011 RG 380
+
 Reynolds, Eleanore. Letter to Arthur Schmon. 29 April 1919. Brock Archives and Special Collections. Arthur A. Schmon fonds RG 524.
 
 Reynolds, Eleanore. Letter to Arthur Schmon. 16 January 1918. Brock Archives and Special Collections. Arthur A. Schmon fonds RG 524.
 
 Wetherald, Ethelwyn. Advice to an Engaged Girl. 28 May 1888. Brock Archives and Special Collections. Agnes Ethelwyn Wetherald fonds RG 84.
-
-McPherson, Anne.  Wedding Invitations. 1935-1975. Brock Archives and Special Collections. Anne McPherson Family Fonds, 1852-2011 RG 380
